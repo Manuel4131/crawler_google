@@ -1,0 +1,1 @@
+### Well, Google has claimed that users can't crawl the content it searched for. It might block your IP if they find that you cause threat. But don't worry, the tool is just like primary school's homework. It's just for fun. However, you can hack it.
